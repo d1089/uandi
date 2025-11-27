@@ -1,4 +1,4 @@
-# VSR Leaders - Volunteers Sync Up - 26-Nov
+# VSR Leaders - Volunteers Sync Up - 26-November
 
 ## **Meeting Purpose**
 
